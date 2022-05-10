@@ -1,3 +1,0 @@
-Tad
-Sonal
-Mike
